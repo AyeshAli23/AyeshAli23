@@ -1,5 +1,5 @@
 ## 💫 About Me:
-• Hi, I'm Syed Ayesh Ali <br>• A Passionate coder <<br>• I’m currently focusing / working on Data Alysis and AI\ML.<br>• How to reach me imayesh999@gmail.com
+• Hi, I'm Syed Ayesh Ali <br>• A Passionate coder <br>• I’m currently focusing / working on Data Alysis and AI\ML.<br>• How to reach me imayesh999@gmail.com
 
 ## 📊 Current Stats:
 Fresh Graduate, looking for opportunities to start my career :)
